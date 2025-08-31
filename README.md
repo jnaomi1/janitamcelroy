@@ -7,6 +7,7 @@ My Name is Janita and I am a Data Engineer/Data Strategist!
 - 🚩My Challenge with Data: Its limitless and endless reporting 
 
 ⭐️Passion: Business Analytics (with a focus….📊 Marketing and Advertising Analytics) 
+
 Love🫶 for: Visuals and interpretations (presentations)…”Making numbers…make sense!”
 
 📧Email Me: janitamcelroy1@gmail.com 
